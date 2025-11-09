@@ -41,8 +41,7 @@
 *   **Divine Displeasure:** The story of Prophet Jacob – a past calamity was linked to neglecting a neighbour. Our indifference has consequences.
 
 **8. The Conclusion & Call to Action**
-*   **Bringing it Full Circle:** From awkward memes to a sacred, active duty.
-*   **The Challenge:** This isn't a passive ideal; it's a proactive call to action.
+*   **Bringing it Full Circle:** From awkward memes to a sacred, active, societal duty.
 *   **Simple Starts:** It begins with a smile, learning a name, a greeting, a small act of kindness. We can rebuild the culture one interaction at a time.
 
   ---
