@@ -1,4 +1,6 @@
-### **Topic: From Awkward Memes to Sacred Rights: Being a Neighbour in the Modern World**
+## Discussion about Rights of Neighbors in Islam
+
+### **Topic: From Awkward Elevator Memes to Sacred Rights: Being a Neighbour in the Modern World**
 
 **1. The Hook: Relating Through Modern Awkwardness**
 *   **The Elevator/Stairwell Meme:** Start by discussing the universal experience of awkward neighbour encounters as seen in reels and memes.
@@ -42,4 +44,47 @@
 *   **Bringing it Full Circle:** From awkward memes to a sacred, active duty.
 *   **The Challenge:** This isn't a passive ideal; it's a proactive call to action.
 *   **Simple Starts:** It begins with a smile, learning a name, a greeting, a small act of kindness. We can rebuild the culture one interaction at a time.
-*   
+
+  ---
+## Hadith/Verses on the rights of neighbors in Islam.
+
+### **Quranic Verse**
+
+*   **Surah An-Nisa (4):36**
+    > وَالْجَارِ ذِي الْقُرْبَىٰ وَالْجَارِ الْجُنُبِ
+    > "And the neighbor who is near and the neighbor who is distant."
+
+### **Hadith and Sayings of the Prophet (PBUH) and Imams (AS)**
+
+**On the Importance and Definition of a Neighbor**
+
+*   **From Imam Sadiq (AS):** On the limit of neighborliness: "Forty houses on each side; forty houses on each side."
+*   **From Imam Ali (AS):** "God, God is with your neighbors, for they are the commandment of your prophet, he still commands them, even we think that he is their heir."
+*   **The Prophet's (PBUH) advice on choosing a home:** "Al-Jar thumma Al-Dar" (First [look at] the neighbor, then [buy] a house).
+
+**On the Specific Rights and Etiquette of a Neighbor**
+
+*   **The Prophet (PBUH) said:** "It is the right of your neighbor... to help him if he asks for help with rent. If he asks for a loan, pay him. If he is poor, take care of him. If something good happens to him, congratulate him. Visit him when he is sick. Condolences to him when he is in distress. If he dies, attend his funeral. Do not increase the height of your house without his consent... Whenever you buy fruit, give him some as a gift..."
+*   **The Prophet (PBUH) said:** "The sanctity of the neighbor on the human being is the sanctity of the mother." (Respect for one's neighbor is like respect for one's mother).
+
+**On Confidentiality and Patience with Neighbors**
+
+*   **From Imam Sajjad (AS):** "If you know that it is bad, you will cover it." (If you become aware of your neighbor's fault, you must conceal it).
+*   **From Imam Kazim (AS):** "There is no good in the vicinity of the victim, but there is good in the vicinity of patience for the victim." (Being a good neighbor is about being patient with your neighbor's harm).
+
+**On the Rewards of Good Treatment**
+
+*   **From Imam Sadiq (AS):** "The beauty of the neighborhood of Yazid al-Diyar wa Yazid fi al-Amaar." (Good neighborliness makes cities prosperous and prolongs lives).
+*   **A Hadith states:** "Good neighborliness increases one's sustenance."
+*   **The Prophet (PBUH) said:** "Whoever dies while having three neighbors and all of them are pleased with him, will be forgiven."
+
+**On the Consequences of Neglect and Harm**
+
+*   **The Prophet (PBUH) said:** "He who goes to bed with a full stomach while his neighbor is hungry has not believed in me."
+*   **Regarding a woman who prayed and fasted but harmed her neighbor:** The Prophet (PBUH) said: "There is no good in her, she is one of the people of the Fire."
+*   **A story is narrated that a calamity for Prophet Jacob (AS) was linked to a time he ate food but did not share with his fasting neighbor.**
+
+**On the Character of a Believer**
+
+*   **From Imam Ali (AS):** "He whose neighborhood is good, his neighbors increase day by day."
+*   **From Imam Baqir (AS):** One of the signs of our followers is "caring for their needy and destitute neighbors."
